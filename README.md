@@ -1,0 +1,2 @@
+# pribadi
+we are developer
